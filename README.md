@@ -1,2 +1,0 @@
-# milos-adventure
-SUP MILOS!!!
